@@ -11,7 +11,7 @@
 > Je recherche activement un **CDI Data Analyst** (Paris / Île-de-France ou télétravail).  
 > Disponible immédiatement. N'hésitez pas à me contacter : **ibovirolde03@gmail.com**
 
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-Rolde%20Ibovi-0077B5?logo=linkedin)](https://linkedin.com/in/rolde-ibovi)
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-Rolde%20Ibovi-0077B5?logo=linkedin)](https://www.linkedin.com/in/rolde-chadrac-ibovi/)
 [![Email](https://img.shields.io/badge/Email-ibovirolde03@gmail.com-D14836?logo=gmail)](mailto:ibovirolde03@gmail.com)
 
 ---
